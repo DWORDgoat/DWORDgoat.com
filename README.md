@@ -1,1 +1,1 @@
-# DWORDgoat.com
+# blog.DWORDgoat.com
